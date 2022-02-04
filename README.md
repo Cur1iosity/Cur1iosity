@@ -2,4 +2,4 @@
 - 👀 I’m interested in programming (C, Python) and cybersecurity (CTF, WebAppSec, Pentest, Hacking, Forensics)
 - 📫 You can reach me by email: Cur1iosity@protonmail.com or TG: @Cur1iosity
 
-![Image](https://tenor.com/03633d77-5096-4de8-b3c5-5c5dc7bdd7c5)
+![Image](https://c.tenor.com/rA6ler4OflUAAAAC/zankyou-no.gif)
